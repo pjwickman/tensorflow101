@@ -1,1 +1,1 @@
-Come back here when there is something here!
+Come back here when something is here!
